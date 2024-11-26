@@ -26,7 +26,9 @@ just any stable OS and an uninterrupted internet connection for tool to run cont
 <br><br>
 <br><br>
 <br><br>
-
+![1732607948677](https://github.com/user-attachments/assets/91780f81-ee2e-476a-84f4-3200aab61e7f)
+![1732607948694](https://github.com/user-attachments/assets/d6ed739a-3368-459d-b437-9fec5316b165)
+![1732607948711](https://github.com/user-attachments/assets/76199a45-8248-4ed8-8838-c37c5fd58db2)
 
 
 # for tutorial click on YouTube icon below
